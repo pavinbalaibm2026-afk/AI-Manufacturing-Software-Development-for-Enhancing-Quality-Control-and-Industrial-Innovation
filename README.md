@@ -1,0 +1,1 @@
+# AI-Manufacturing-Software-Development-for-Enhancing-Quality-Control-and-Industrial-Innovation
